@@ -1,5 +1,5 @@
 
-![](https://cdn.holidayguru.nl/wp-content/uploads/2020/02/The-beach-Playa-de-Morro-Jable-Fuerteventura-Spain-iStock-624437738-1200x335.jpg)
+![Tummy relax](https://sh-assets.holidu.com/imagecache/blog-photos/17668_Fill_670_0.jpg)
 
 # GREAT WILL :surfer: :surfer:
 
