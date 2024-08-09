@@ -14,3 +14,10 @@ Some of the things Will likes to do are:
 One of the famous poems from the island:
 > (lots of text in a foreign language)
 
+## Recipe for success
+
+In order for Will to be very successfull in Fuerteventura he needs to:
+- [ ] Brush his teeth
+- [ ] Wear sunscreen
+- [ ] Comb his hair
+
