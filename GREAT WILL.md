@@ -21,3 +21,7 @@ In order for Will to be very successfull in Fuerteventura he needs to:
 - [ ] Wear sunscreen
 - [ ] Comb his hair
 
+## Making this file cooler
+
+It is very cool indeed.
+
